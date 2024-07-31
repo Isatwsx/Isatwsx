@@ -1,14 +1,15 @@
 -*MINHA INTRODUÇÂO*
 
-- 👋 oi, me chamo ***@Isatwsx***
-- 👀 estou interessada em ***não*** desenvolver sites
-- 🌱 atualmente estou aprendendo novos idiomas de meu interesse pessoal como ***japonês***
-- 💞️  Estou procurando colaborar com ***nada***
-- 📫 Como chegar até mim? ***não chegue*** ;)
-- 😄 pronomes: ***omnitrix e obelix***...
-- ⚡ fato divertido: gosto bastante de ***dançar*** nas horas vagas...
+- :cherries: oi, me chamo ***@Isatwsx***
+- :cherries: estou interessada em ***não*** desenvolver sites
+- :cherries: atualmente estou aprendendo novos idiomas de meu interesse pessoal como ***japonês***
+- :cherries:Estou procurando colaborar com ***nada***
+- :cherries: Como chegar até mim? ***não chegue*** ;)
+- :cherries: pronomes: ***omnitrix e obelix***...
+- ***私がスターです***
+-  fato divertido: gosto bastante de ***dançar*** nas horas vagas...
 
-- ![nishimura](https://i.pinimg.com/originals/24/45/9f/24459f1acfc78cec65a25af756fef760.gif)
+- ![nishimura](https://i.pinimg.com/originals/2e/5a/1e/2e5a1edccccf99ca4eb98eee0792b1ec.gif)
 
 <!---
 Isatwsx/Isatwsx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
