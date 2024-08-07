@@ -4,7 +4,7 @@
 - :cherries: estou interessada em ***não*** desenvolver sites
 - :cherries: atualmente estou aprendendo novos idiomas de meu interesse pessoal como ***japonês***
 - :cherries:Estou procurando colaborar com ***nada***
-- :cherries: Como chegar até mim? ***não chegue*** ;)
+- :cherries: Como chegar até mim? @isabelly.souza.paula@escola.pr.gov.br ;)
 - :cherries: pronomes: ***omnitrix e obelix***...
 - ***私がスターです***
 -  fato divertido: gosto bastante de ***dançar*** nas horas vagas...
