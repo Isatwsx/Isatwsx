@@ -3,7 +3,7 @@
 - :cherries: oi, me chamo ***@Isatwsx***
 - :cherries: estou interessada em ***não*** desenvolver sites
 - :cherries: atualmente estou aprendendo novos idiomas de meu interesse pessoal como ***japonês***
-- :cherries:Estou procurando colaborar com ***nada***
+- :cherries:Estou procurando colaborar com ***sites que ajudem a ajudar os outros***
 - :cherries: Como chegar até mim? @isabelly.souza.paula@escola.pr.gov.br ;)
 - :cherries: pronomes: ***omnitrix e obelix***...
 - ***私がスターです***
